@@ -1,1 +1,10 @@
-will give you the link soon.
+
+![Screenshot 2021-12-26 16 11 15](https://user-images.githubusercontent.com/67171648/152404228-d14409fb-e1ff-4f4e-ab59-883b09b768e6.png)
+![Screenshot 2021-12-26 16 11 47](https://user-images.githubusercontent.com/67171648/152404241-66206a49-3245-4699-ac07-5dd4fafba890.png)
+![Screenshot 2021-12-26 16 11 50](https://user-images.githubusercontent.com/67171648/152404251-b51e8100-4f0a-481e-899f-8fd7acf0101e.png)
+![Screenshot 2021-12-26 16 11 55](https://user-images.githubusercontent.com/67171648/152404263-aa9fcb68-8c63-4889-af85-088e4269690a.png)
+![Screenshot 2021-12-26 16 11 59](https://user-images.githubusercontent.com/67171648/152404269-79d99959-9321-4157-b48c-12e6ca8d2b57.png)
+![Screenshot 2021-12-26 16 12 02](https://user-images.githubusercontent.com/67171648/152404281-672fe2f7-a4d1-43f8-8903-1b428bb24d08.png)
+![Screenshot 2021-12-26 16 12 09](https://user-images.githubusercontent.com/67171648/152404294-c2cea6b8-080a-4ae5-a362-44b8a2cf721c.png)
+![Screenshot 2021-12-26 16 12 12](https://user-images.githubusercontent.com/67171648/152404304-7f9ca370-d22d-485c-aabd-9bb96cb4abde.png)
+![Screenshot 2021-12-26 16 12 14](https://user-images.githubusercontent.com/67171648/152404315-603e5256-a4f6-4041-b843-6c209dd1e9cb.png)
